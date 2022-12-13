@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ibrahim, Founder and CEO of Etihal Global EdTech Solutions
+- 👋 Hi, I’m Ibrahim, Founder and CEO of Etihal Global EdTech Solutions. Also the Founder of Etihal Academy.
 - 👀 I’m interested in Educational Technology (EdTech) as my Niche, to help people have access to quality educational contents remotely.
 - 🌱 I’m currently learning to connect with likeminded peers and build my team of Edtech solutions.
 - 💞️ I’m looking to collaborate on EdTech Projects for K-12, Higher Institutions as well as Corporates.
